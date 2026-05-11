@@ -1,4 +1,4 @@
-
+Affinity Photo for macOS secure Automation: blend modes & 3D rendering offers the most advanced Affinity Photo for macOS automation, with blend modes and 3D rendering. Ideal for
 
 
 
